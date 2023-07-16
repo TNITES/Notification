@@ -14,8 +14,8 @@ The milestone for the leader of a TAA is laid on the followings foundation:
 
 Alumni who wish to be a member have direct access to the Association through this automated webpage. We are reluctantly working on automatically generating membership cards after paying the minimum required amount of ₹500 through a link and payment gateway.   
 
-1. It will imbue the mass registration drive of members to work on fundamental principles and aims.   
-2. It will help contribute to TAA's laid objectives, and they will be expected to lend the time & resources for its success & productivity.  
+1. It will imbue the mass registration drive of members to work on fundamental principles and aims.
+2. It will help contribute to TAA's laid objectives, and they will be expected to lend the time & resources for its success & productivity.
 3. Value the TAA's noble efforts and work for the basic message in which the Association is formed.   
 
 Any alliance is based on real-time access for the inclusion of maximum participants. In this direction, to sustain as an association, our primary focus is towards implementing the plan for the year and a dedicated column, "सम्झना र स्मृति", has been programmed where members can share & write their experiences freely. 
